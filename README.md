@@ -1,0 +1,1 @@
+# Analise-LLM-Caderno-AMARELO-APLICA-O_REGULAR
